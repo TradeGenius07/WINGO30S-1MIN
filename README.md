@@ -1,0 +1,1 @@
+# WINGO30S-1MIN
